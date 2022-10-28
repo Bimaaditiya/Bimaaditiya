@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @Bimaaditiya
 - 👀 I’m interested in Website & Mobile Development in Front-end side
+-📫 How to reach me => 💌 DM me on instagram @_bimaaditiya / email me on Bima.aditiya30@gmail.com / you can chat me on LinkedIn (Bima Aditiya)
